@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Damy123 
-- Dulmina Madhushan
+- 
 - 👀 I’m interested in IT
 <!--- 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
