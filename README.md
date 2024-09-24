@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Damy123 
+- 👋 Hi, I’m Shashini Umayangana
 - 
 - 👀 I’m interested in IT
 <!--- 🌱 I’m currently learning ...
